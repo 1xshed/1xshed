@@ -1,7 +1,7 @@
 ![hi](https://files.catbox.moe/6y3pgz.png)
 <div align="center">
 
-mirrorsharing⠀telamon / shedletsky⠀yume
+mirrorsharing⠀telamon / shedletsky⠀yume + kin
 <br>
 c + h⠀heavily⠀encouraged⠀⠀⠀⠀⠀cover⠀discomfort
 <br>
